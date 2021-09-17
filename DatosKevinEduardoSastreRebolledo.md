@@ -3,3 +3,5 @@ Kevin Eduardo Sastré Rebolledo
 Ingeniería Eléctrica Electrónica
 Nadar
 Chilaquiles verdes
+Miss the rage - Playboi Carti
+Team Iron Man
